@@ -14,7 +14,7 @@ Windows  and android users only ,
 
 ![image](https://github.com/hrdv10/snipper-game.github.io/blob/m/footage5.png)
 
-![image](https://github.com/hrdv10/snipper-game/blob/m/thumbna.png.png)
+![image](https://github.com/hrdv10/snipper-game.github.io/blob/m/footage6.png)
 
 v
 ![image](https://github.com/hrdv10/snipper-game/blob/m/thumbna.png.png)
